@@ -1,5 +1,5 @@
 ## Hi there 👋
-Boas vindas ao meu perfil 💙💙
+Boas vindas ao meu perfil 😸 
 Meu nome é Yasmin Julia
 
 Estou estudando na Alura
